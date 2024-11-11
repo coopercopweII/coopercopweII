@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/2965107f-818b-479f-9922-50601fa4b08f)
 
 <h5 align="center"> 
-art by me.
+all art by me.
 
 <h5 align="center"> 
 
