@@ -1,7 +1,7 @@
 
 <h5 align="center"
 
-Won't be getting on pt until 19!!
+very inactive.. sigh sorry gang
   
 <h5 align="center"> 
 
