@@ -1,6 +1,7 @@
 
 <h5 align="center"
-![tumblr_4d0616d633ec4fa3ea0636d7cd4635ef_0dc2d587_2048](https://github.com/user-attachments/assets/1b6e7706-1262-4849-a3ef-0b391a787bcd)
+![tumblr_f3d3f8301e212f10c870d69529568c94_b3747036_1280](https://github.com/user-attachments/assets/a7500f78-f21e-4e27-8907-df5d45b84cda)
+@venomhasrabiess
 
   
 <h5 align="center"> 
@@ -8,5 +9,3 @@
 [rentry](https://rentry.co/koganee) + [atabook](https://keithgane.atabook.org/)
 
 
-<h5 align="center"> 
-was originally labsoulmates / redkogane
