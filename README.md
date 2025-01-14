@@ -9,6 +9,6 @@
   
 <h5 align="center"> 
 
-[rentry](https://rentry.co/koganee) + [atabook](https://keithgane.atabook.org/)
+[patreon](patreon.com/user?u=99083552) + [atabook](https://keithgane.atabook.org/)
 
 
