@@ -9,6 +9,6 @@
   
 <h5 align="center"> 
 
-[patreon](patreon.com/user?u=99083552) + [atabook](https://keithgane.atabook.org/)
+[patreon](https://www.patreon.com/c/user/about?u=99083552) + [atabook](https://keithgane.atabook.org/)
 
 
