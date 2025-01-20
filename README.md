@@ -11,6 +11,6 @@
   
 <h5 align="center"> 
 
-[patreon](https://www.patreon.com/c/user/about?u=99083552) + [atabook](https://keithgane.atabook.org/)
+[strawpage](https://uitimatelifeform.straw.page/) + [atabook](https://keithgane.atabook.org/)
 
 
