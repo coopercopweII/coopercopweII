@@ -20,5 +20,3 @@
 
 
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=x46zbngcn083ytxdc15ea1rkt&cover_image=false&theme=default&show_offline=false&background_color=ffffff&interchange=false&bar_color=000000&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=x46zbngcn083ytxdc15ea1rkt&redirect=true)
