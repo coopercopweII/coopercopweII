@@ -13,7 +13,10 @@
 
 
 
-![tumblr_271d78762bce213740622364ab60ffce_fae079d9_100](https://github.com/user-attachments/assets/393e4f23-6069-468c-a507-52d84806e89c)
+
+![Untitled251_20250206211327](https://github.com/user-attachments/assets/4e523408-ece4-4a1c-af67-6f3a5a9a2baa)
+
+
 
 [tumblr](https://www.tumblr.com/redkogaane?source=share) 
 
