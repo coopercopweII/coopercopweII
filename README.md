@@ -9,4 +9,4 @@
   
 <h5 align="center"> 
 
-redoing, may take a while
+i love c+hing no need to ask. c+h are encouraged.
