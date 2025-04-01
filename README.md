@@ -9,4 +9,6 @@
   
 <h5 align="center"> 
 
-i love c+hing no need to ask. c+h are encouraged.
+c+h are always free. 
+
+![20250402_061330](https://github.com/user-attachments/assets/b86225a9-298f-44ae-bf80-064696dfa9de)
