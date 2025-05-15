@@ -10,7 +10,7 @@
 
 
 formerly known as SIRLANCELOT / 7n7elliot
-![image](https://github.com/user-attachments/assets/15dd1aad-6c0f-4e69-9b67-b85a0b551670)
-(i love them guys./p/p)
+![image](https://github.com/user-attachments/assets/0cc2ad12-e6e1-43c3-a5f0-035dd1b39cb1)
+
 
 
