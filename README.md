@@ -8,5 +8,6 @@
   
 <h5 align="center"> 
 
-<img width="1012" height="754" alt="image" src="https://github.com/user-attachments/assets/706a6f28-ad78-4029-9a3c-4645119070a6" />
+![the-nightly-manor-tnm](https://github.com/user-attachments/assets/4a2a8632-8176-428a-ab1e-de33ac89f679)
+
 
