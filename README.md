@@ -8,7 +8,6 @@
   
 <h5 align="center"> 
 
-![the-nightly-manor-tnm](https://github.com/user-attachments/assets/4a2a8632-8176-428a-ab1e-de33ac89f679)
+![5514678f91463be7a7af7a9c97aeea73](https://github.com/user-attachments/assets/edc71209-3908-4fca-92a4-2ac1a84fffa3)
 
-
-me and my gps
+Tthem and me
