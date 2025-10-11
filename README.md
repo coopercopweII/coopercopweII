@@ -11,14 +11,18 @@
 
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Oswald&weight=500&size=40&pause=1000&color=F78D31&center=true&vCenter=true&width=435&lines=OJ+.+LANCE+.+MAFI;He+him+.+OSC+area+!)](https://git.io/typing-svg)
-  
+
+  <sub> cover trigger , do not cover me unless friends.
+
+    
 <h5 align="center"> 
 
 ![inanimate-insanity-oj](https://github.com/user-attachments/assets/4be1b955-0c05-49ab-a19d-7649e8016d00)
 
 
 <h5 align="center"> 
-cover trigger . do not cover me unless friends.
+  
+[carrd](https://lanceski.carrd.co/) . [ata](https://keithgane.atabook.org/)
 
 <img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/f5c7c2d6-6743-41e3-81a7-0036939760df" />
 
