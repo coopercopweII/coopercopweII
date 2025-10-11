@@ -7,15 +7,15 @@
 <img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/e16cad0f-8a6d-4820-9fc1-a6e134d342d7" />
 
 
+<h5 align="center"> 
 
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Oswald&weight=500&size=40&pause=1000&color=F78D31&center=true&vCenter=true&width=435&lines=OJ+.+LANCE+.+MAFI;He+him+.+OSC+area+!)](https://git.io/typing-svg)
   
 <h5 align="center"> 
 
 ![inanimate-insanity-oj](https://github.com/user-attachments/assets/4be1b955-0c05-49ab-a19d-7649e8016d00)
 
-
-
-I hate payjay I hate them I hate
 
 <h5 align="center"> 
 
