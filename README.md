@@ -8,7 +8,8 @@
   
 <h5 align="center"> 
 
-![payjay-inanimate-insanity](https://github.com/user-attachments/assets/03b36feb-a3cc-43e3-b4ee-c036dd661339)
+![inanimate-insanity-oj](https://github.com/user-attachments/assets/4be1b955-0c05-49ab-a19d-7649e8016d00)
+
 
 
 I hate payjay I hate them I hate
