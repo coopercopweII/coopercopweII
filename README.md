@@ -3,7 +3,10 @@
 
 
 
-<h5 align="center"
+  
+<img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/e16cad0f-8a6d-4820-9fc1-a6e134d342d7" />
+
+
 
   
 <h5 align="center"> 
@@ -13,3 +16,9 @@
 
 
 I hate payjay I hate them I hate
+
+<h5 align="center"> 
+
+
+<img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/f5c7c2d6-6743-41e3-81a7-0036939760df" />
+
