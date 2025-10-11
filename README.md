@@ -18,7 +18,7 @@
 
 
 <h5 align="center"> 
-
+cover trigger . do not cover me unless friends.
 
 <img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/f5c7c2d6-6743-41e3-81a7-0036939760df" />
 
