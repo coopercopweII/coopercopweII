@@ -24,7 +24,7 @@
 
 <h5 align="center"> 
   
-[carrd](https://lanceski.carrd.co/) . [ata](https://keithgane.atabook.org/)
+[rentry](https://rentry.co/ojhotelparty) . [ata](https://keithgane.atabook.org/)
 
 <img width="1200" height="70" alt="image" src="https://github.com/user-attachments/assets/f5c7c2d6-6743-41e3-81a7-0036939760df" />
 
