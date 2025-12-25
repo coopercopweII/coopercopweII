@@ -9,6 +9,6 @@
 
 <h5 align="center"> 
   
-[strawpg](https://blackholepilled.straw.page/)  [ata](https://keithgane.atabook.org/)  [tree](https://colormytree.me/2025/01JFQ3KB30TT82QADRPG5WKZK5)
+[strawpg](https://blackholepilled.straw.page/)  [ata](https://keithgane.atabook.org/)
 
 
